@@ -2,3 +2,4 @@
 
 - 🌱 I’m currently learning JavaScript
 - 😄 Pronouns: He
+- 👅 Languages: French 🇫🇷 🔥 and English 🇬🇧
