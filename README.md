@@ -1,4 +1,4 @@
-### Hi there 👋 My name is Axel. I'm a front-end web developer.
+### Hi there 👋 My name is Axel. I'm developer.
 
 - 😄 Pronouns: He
 - 👅 Languages: French 🇫🇷 🔥 and English 🇬🇧
